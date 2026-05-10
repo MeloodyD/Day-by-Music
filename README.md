@@ -10,6 +10,7 @@
 > *How do you measure a year? In daynights, in sunsets, in midnights, in cups of coffee...*
 
 **Day by Music** 诞生于一个浪漫的设想：如果我们以**音乐 (Songs)** 来衡量时间呢？
+<img width="1470" height="830" alt="截屏2026-05-10 上午2 26 15" src="https://github.com/user-attachments/assets/3eb0086f-674c-462d-93f2-fa1b033e2a57" />
 
 ---
 
